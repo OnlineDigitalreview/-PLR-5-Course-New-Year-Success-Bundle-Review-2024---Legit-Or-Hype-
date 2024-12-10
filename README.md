@@ -1,5 +1,4 @@
-<strong>[PLR] 5-Course New Year Success Bundle Review</strong>
-
+<h1><strong>[PLR] 5-Course New Year Success Bundle Review</strong></h1>
 <strong>Kickstart 2025 with These Done-For-You Courses</strong>
 
 Building a top-notch course from the ground up can be daunting. The constant research, writing, and designing cycle can drain your energy and creativity.
